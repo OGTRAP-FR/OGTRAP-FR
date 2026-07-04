@@ -1,5 +1,5 @@
 # 💫 ABOUT ME:
-BUILDING <TRAP.ORG> </><br>EMAIL ON PLAYFORSHIVAM@GMAIL.COM FOR COLLAB
+♱. BUILDING<CARTEL 616> </> . ⸸ </><br>EMAIL ON PLAYFORSHIVAM@GMAIL.COM FOR COLLAB
 
 ## 🌐 SOCIALS:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/w42BtX6XxM) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/ogtrap.exe) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@TRAPOG_YT) [![EMAIL](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:PLAYFORSHIVAM@GMAIL.COM) 
